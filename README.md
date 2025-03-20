@@ -9,7 +9,7 @@ O que você🫵🏻 tem que saber sobre mim:
 
    📈 Meu objetivo de vida e de qualquer projeto que eu trabalhe é crescimento e escala.
 
-   🔥 O meu objetivo é desenvolver projetos solo que me gerem um bom MRR.
+   🔥 O meu objetivo é desenvolver projetos solo que me gere um bom MRR.
   
   
   Estou sempre em busca de aprender novas habilidades, sou extrovertido e lido bem com pessoas.
